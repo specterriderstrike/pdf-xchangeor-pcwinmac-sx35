@@ -1,4 +1,4 @@
-# 
+# Personalizado PDF-XChange Editor ferramentas para Mac OS | Melhor PDF-XChange Editor ferramentas para PC Windows. Com reembolsos e ferramentas de anotação — otimizado para máximo desempenho em cada plataforma.
 
 
 
